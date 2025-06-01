@@ -1,3 +1,0 @@
-# NewOne
-
-projects heyey ewyt
